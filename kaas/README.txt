@@ -1,1 +1,1 @@
-Hallo ik ben een kat
+Hallo ik ben een mooiere kat
